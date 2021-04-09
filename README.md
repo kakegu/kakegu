@@ -3,5 +3,5 @@
 - 💪  I’m a Bitcoin Hodler
 - 🌱  My job is blockchain development
 - 🤔  Love computer programming
-- 📫  email: gusuncheng@gmail.com
+- 📫  email: kakeloveu@gmail.com
 - 😄  Bitcoin To The Moon 🌙
